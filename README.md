@@ -1,1 +1,2 @@
-# repo20
+[![Hello](https://i.ibb.co/68QzPvk/35wegtsd.jpg)](https://discord.gg/87M6hUbmTk)
+Our cheats stay remarkably difficult to detect due to a distinctive encryption technique customized for every user. This personalized approach ensures that the anti-cheat system cannot track the cheat's data. However, it is essential to refrain from participating in aggressive hacking activities, as there is a potential risk of being reported by fellow players, leading to a subsequent ban.
